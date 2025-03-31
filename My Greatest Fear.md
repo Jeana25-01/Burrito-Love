@@ -23,5 +23,5 @@ Imagine waking up one day to find that burritos **no longer exists**.
 - spread burrito awareness using the hashtag **#SaveTheBurritos**
 
 ### Final Thought
-**_"Alife without burritos is not a life worth living."_**
+**_"A life without burritos is not a life worth living."_**
 
